@@ -10,6 +10,8 @@ muyikun007 的个人博客
 
 ### 最新
 
+* [蜘蛛盟投票平台，一票0.12起步，1元提现](http://dy.51renrenzhuan.com/articles/2019/11/03/1572717899049.html)
+* [云服务器1折起，仅86元/年，限量抢购](http://dy.51renrenzhuan.com/articles/2019/11/03/1572717025125.html)
 * [世界，你好！](http://dy.51renrenzhuan.com/hello-solo)
 
 
